@@ -1,0 +1,6 @@
+Noodles
+Veggies like cabbage, carrots,capsicum,zucchini,broccoli,cauliflower,green peas, bean sprouts and green beans
+Soya sauce
+Tomato sauce
+Vineger
+peppers
